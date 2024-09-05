@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Hopebayo
 - 👀 I’m interested in ...business 
 - 🌱 I’m currently learning ...forex trading 💹 
-- 💞️ I’m looking to collaborate on ...the biggest forex traders in the world 
+- 💞️ I’m looking to collaborate with...the biggest forex traders in the world 
 - 📫 How to reach me ...WhatsApp b09027124469
 - 😄 Pronouns: ... you
 - ⚡ Fun fact: ...i love food 🍲 
